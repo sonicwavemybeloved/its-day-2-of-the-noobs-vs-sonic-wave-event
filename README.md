@@ -1,2 +1,3 @@
-# its-day-2-of-the-noobs-vs-sonic-wave-event
-and I need 2 percent to survive
+158 people now remain in ITSME's event to get a new best on sonic wave every single day.
+if I don't get one, I'm eliminated.
+it's day 2 and I need 2% to stay alive...
